@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... where innovation meets opportunity!
 -  We are a vibrant community of tech enthusiasts and entrepreneurs, united by our passion for software development and e-commerce. 
 -  Whether you're a seasoned professional or a budding talent, we invite you to join us on this exciting journey of turning ideas into reality. 
--  Together, we can create groundbreaking solutions that shape the future of technology and commerce. Join our diverse and collaborative team today and let's build something extraordinary.
+-  Together, we can create groundbreaking solutions that shape the future of technology and commerce. Join our diverse and collaborative team today and let's build something extraordinary. ..$🇩🇪 💡 @berlin Store Company.
 - 📫 How to reach me ... meine E-mail:abddalsa95@gmail.com
 
 <!---
